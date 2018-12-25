@@ -1,0 +1,2 @@
+# linuxnetadmin
+för tryhard jocke
